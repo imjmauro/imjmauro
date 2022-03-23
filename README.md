@@ -1,7 +1,11 @@
 <programação por paixão>
+
 --programação social
+
 --procurando formas de ajudar
+
 --mudar pessoas para as pessoas mudarem o mundo
+
 >>vivendo e aprendendo
 
 -para me contatar- (jmaurobrummilitao@gmail.com)

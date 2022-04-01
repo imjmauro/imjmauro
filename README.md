@@ -1,12 +1,12 @@
 # <programação por paixão>
 
---programação social
+## programação social
 
---procurando formas de ajudar
+## procurando formas de ajudar
 
---mudar pessoas para as pessoas mudarem o mundo
+## mudar pessoas para as pessoas mudarem o mundo
 
->>vivendo e aprendendo
+### >>vivendo e aprendendo<<
 
 -para me contatar- (jmaurobrummilitao@gmail.com)
 *Backlogged books on the seven wonders*
